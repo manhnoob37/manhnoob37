@@ -2,7 +2,7 @@
 - You can see me on some social link:
 -   + Roblox: https://www.roblox.com/users/737311249/profile
     + Twitter: https://twitter.com/manhnoob37
-    + Youtube: https://www.youtube.com/@manh_noob37
+    + Youtube: https://www.youtube.com/@manh_noob
     + and more...
 - I'd love to contact with any developer who can teach and advice me on some codes! :D
 
