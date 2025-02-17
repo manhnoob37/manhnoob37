@@ -1,7 +1,6 @@
 - Be a Noob! :D
 - You can see me on some social link:
 -   + Roblox: https://www.roblox.com/users/737311249/profile
-    + Discord: https://discord.gg/aUvDDHTraA
     + Twitter: https://twitter.com/manhnoob37
     + Youtube: https://www.youtube.com/@manh_noob37
     + and more...
